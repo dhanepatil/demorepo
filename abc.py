@@ -4,4 +4,4 @@ e vke vek v
  vke vke v
  akshay
  uma is super champ
- uma is awasome
+ uma is awesome
